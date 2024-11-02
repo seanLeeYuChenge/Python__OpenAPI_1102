@@ -5,3 +5,5 @@ https://meet.google.com/zun-hzzz-fov
 
 # 第一次上課youtube
 https://www.youtube.com/watch?v=fyI2xnVGFfI
+
+https://www.youtube.com/watch?v=JRGaB19394c
