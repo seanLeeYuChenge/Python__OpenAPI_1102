@@ -7,3 +7,6 @@ https://meet.google.com/zun-hzzz-fov
 https://www.youtube.com/watch?v=fyI2xnVGFfI
 
 https://www.youtube.com/watch?v=JRGaB19394c
+
+# 第二次上課youtube
+https://www.youtube.com/watch?v=pkqEh1lFz4g
