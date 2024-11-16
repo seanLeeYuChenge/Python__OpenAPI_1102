@@ -12,3 +12,7 @@ https://www.youtube.com/watch?v=JRGaB19394c
 https://www.youtube.com/watch?v=pkqEh1lFz4g
 
 https://www.youtube.com/watch?v=Hng8m3g-tL4
+
+# 第三次上課youtube
+https://www.youtube.com/watch?v=Zr6XMfQUv08
+
