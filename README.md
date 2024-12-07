@@ -27,3 +27,8 @@ https://www.youtube.com/watch?v=_afMhN9vF8k
 https://www.youtube.com/watch?v=1Ey3LwjQMV4
 
 https://www.youtube.com/watch?v=2YQcn9VzSqg
+
+# 第六次上課youtube
+https://www.youtube.com/watch?v=zenppplLRpo
+
+https://www.youtube.com/watch?v=i_DCX1_4GFM
