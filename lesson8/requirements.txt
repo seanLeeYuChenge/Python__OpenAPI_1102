@@ -1,0 +1,1 @@
+streamlit run lesson8_1.py
