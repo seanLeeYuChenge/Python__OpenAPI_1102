@@ -42,3 +42,9 @@ https://www.youtube.com/watch?v=ufgAaWSD0Ig
 https://youtube.com/live/65nFOANHAAk
 
 https://www.youtube.com/watch?v=CtCAZ11CefE
+
+# 第九次上課youtube
+
+https://www.youtube.com/watch?v=F6Py68yev98
+
+https://www.youtube.com/watch?v=TI0cZT_eDDM
